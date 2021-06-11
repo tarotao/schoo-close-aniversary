@@ -1,1 +1,0 @@
-# schoo-close-aniversary
